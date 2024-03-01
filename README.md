@@ -20,6 +20,8 @@
 
 > i dont actually speak this formally, i just have a mild typing quirk where i usually Capitalize random Letters in a sentence, Like This One right Now! the formalness is just so i dont sound awkward. if i act blunt/rude out of nowhere or at first, its not intentional, i dont bite, i promise!
 
+> *COMMUNICATION IS KEY!* if ur one of my friends, please let me know BEFOREHAND that youd like to sit with me! it overwhelms me if you just come by the area i frequent the most and just sit with me before asking me and i might get scared and leave a few minutes later ,, sitting anywhere near me is ok, you just have to ask me!
+
 ---
 ## ***thnx for reading! !! !! !***
 
