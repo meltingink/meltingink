@@ -4,6 +4,10 @@
 
 > marina / chaotico, she/her - ![brazilflag](https://file.garden/ZSHrFmTvf253N3H3/brazil.png)![brazilflag](https://file.garden/ZSHrFmTvf253N3H3/brazil.png)![brazilflag](https://file.garden/ZSHrFmTvf253N3H3/brazil.png)![brazilflag](https://file.garden/ZSHrFmTvf253N3H3/brazil.png)![brazilflag](https://file.garden/ZSHrFmTvf253N3H3/brazil.png)!!!!!!!!!! also lithromantic and bi-sexual/romantic with female pref if you careeee
 
+> a lot of my interests are casual. i dont mind if im on ur DNI, but if you dont like a certain fandom it'd be appreciated if you atleast warned me before blocking me fully! i may be unaware or just dont remember. just know im not doing it on purpose or to get a rise out of you.
+
+> ill re-format this entire thing at some point.
+
 ‣ [carrd](https://chaotico.carrd.co/) ✦ [guestbook](https://chaotico.123guestbook.com/) ✦ [pronouns.cc](https://pronouns.cc/@INKING_DOWN) ✦ [spacehey](https://spacehey.com/recurser) ✦ [toyhouse](https://toyhou.se/melting_ink)
 
 ---
