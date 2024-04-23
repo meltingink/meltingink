@@ -10,4 +10,4 @@
 
 <p align="center"> if you dont like me mentioning a fandom around you (pony cosplay, general talking, etc) please tell me! i wont know otherwise <p>
 
-<p align="center"> current fandoms/fixations: vs dave and bambi, yin's birthday bash: reimagined, roblox piggy . a lot of my interests are casual, so dont take it to heart! <p>
+<p align="center"> current fandoms/fixations: vs dave and bambi, yin's birthday bash: reimagined, roblox piggy and baldis basics . a lot of my interests are casual, so dont take it to heart! <p>
