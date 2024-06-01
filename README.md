@@ -10,7 +10,7 @@
 
 <p align="center"> if you dont like me mentioning a fandom around you (pony cosplay, general talking, etc) please tell me! i wont know otherwise <p>
 
-<p align="center"> current fandoms/fixations: vs dave and bambi, yin's birthday bash: reimagined, roblox piggy and baldis basics . a lot of my interests are casual (i dont invest in it often), so dont take it to heart! <p>
+<p align="center"> current fandoms/fixations: vs dave and bambi, yin's birthday bash: reimagined, roblox piggy and roblox egg kevin's house . a lot of my interests are casual (i dont invest in it often), so dont take it to heart! <p>
 
 <br>
 <p align="center"> also please for the love of everything i am not a countryhumans fan infact i despise it to death my brazil pony is literally just because i wanted to make a pony inspired off brazil that is literally it LMAO</p>
