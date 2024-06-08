@@ -4,6 +4,8 @@
 
 <p align="center"> <em> <a href="https://retrospring.net/@RECURSER">retrospring</a> , <a href="https://chaotico.123guestbook.com/">guestbook</a> , <a href="https://chaotico.carrd.co/">carrd</a> , <a href="https://toyhou.se/melting_ink">toyhouse</a> , <a href="https://pronouns.cc/@INKING_DOWN">pronouns.cc</a> </em> <p>
 
+<p align="center"> <a href="https://chaotico.straw.page/">send me a doodle !</a> <p>
+
 <p align="center"> marina or chaotico, she/her, brazillian <p>
 
 <p align="center"> statuses: away = default status , busy = busy/unhappy/etc ! im usually offtab anyway though so its best to just whisper to me. <p>
