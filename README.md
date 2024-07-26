@@ -10,7 +10,7 @@
 
 <p align="center"> statuses: away = default status , busy = busy/unhappy/etc ! im usually offtab anyway though so its best to just whisper to me. <p>
 
-<p align="center"> if you dont like me mentioning a fandom around you (pony cosplay, general talking, etc) please tell me! i wont know otherwise <p>
+<p align="center"> if you dont like me mentioning a fandom around you (pony cosplay, general talking, etc) or anything else please tell me! i wont know otherwise <p>
 
 <p align="center"> current fandoms/fixations: vs dave and bambi, yin's birthday bash: reimagined, roblox piggy, roblox bear alpha and roblox egg kevin's house . a lot of my interests are casual (i dont invest in it often), so dont take it to heart! <p>
 
