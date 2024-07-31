@@ -14,5 +14,7 @@
 
 <p align="center"> current fandoms/[fixation]: vs dave and bambi, [yin's birthday bash: reimagined], RIBBIT (deltarune mod), roblox piggy, roblox bear alpha and roblox egg kevin's house . a lot of my interests are casual (i dont invest in it often), so dont take it to heart! <p>
 
+<p align="center"> <img src="https://file.garden/ZSHrFmTvf253N3H3/YOUsprite1.png" /> <p>
+
 <br>
 <p align="center"> also please for the love of everything i am not a countryhumans fan infact i despise it to death my brazil pony is literally just because i wanted to make a pony inspired off brazil that is literally it LMAO</p>
