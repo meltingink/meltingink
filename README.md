@@ -8,7 +8,7 @@
 
 <p align="center"> marina or chaotico, she/her, brazillian <p>
 
-<p align="center"> statuses: away = default status , busy = busy/unhappy/etc ! im usually offtab anyway though so its best to just whisper to me. <p>
+<p align="center"> my default status is 'away' . im usually offtab anyway though so its best to just whisper to me. <p>
 
 <p align="center"> if you dont like me mentioning a fandom around you (pony cosplay, general talking, etc) or anything else please tell me! i wont know otherwise <p>
 
