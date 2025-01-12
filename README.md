@@ -14,7 +14,7 @@
 
 <p align="center"> current fandoms/[fixations]/*special interest*: *RIBBIT (deltarune mod)*, roblox block tales and [IHasAFaceLULZ (roblox horror webseries)] (this list is incredibly short because im not active in many fandoms, these are only the ones im active in as of now) . a lot of my interests are casual (i dont invest in it often), so dont take it to heart! <p>
 
-<p align="center"> <img src="https://file.garden/ZSHrFmTvf253N3H3/YOUsprite1.png" /> <p>
+<p align="center"> <img src="https://file.garden/ZSHrFmTvf253N3H3/ann.png" /> <p>
 
 <br>
 <p align="center"> also please for the love of everything i am not a countryhumans fan infact i despise it to death my brazil pony is literally just because i wanted to make a pony inspired off brazil that is literally it LMAO</p>
