@@ -16,5 +16,4 @@
 
 <p align="center"> <img src="https://file.garden/ZSHrFmTvf253N3H3/ann.png" /> <p>
 
-<br>
-<p align="center"> also please for the love of everything i am not a countryhumans fan infact i despise it to death my brazil pony is literally just because i wanted to make a pony inspired off brazil that is literally it LMAO</p>
+[![IHasAFaceLULZ I Miss The Quiet Cover](http://i.ytimg.com/vi/UaqR3AIhNtM/hqdefault.jpg)](https://www.youtube.com/watch?v=UaqR3AIhNtM)
