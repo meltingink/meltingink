@@ -1,6 +1,6 @@
-<p align="center"> <em> '' But my heart stayed calm , no matter how much I tried to stress it out . '' </em> <p>
+<p align="center"> <em> '' It had to be me . . . Fucking . . . Shit . '' </em> <p>
 
-<p align="center"> <img src="https://file.garden/ZSHrFmTvf253N3H3/YOUwindows"/> </p>
+<p align="center"> <img src="https://file.garden/ZSHrFmTvf253N3H3/ihasafacelulz.gif"/> </p>
 
 <p align="center"> <em> <a href="https://www.roblox.com/users/205802843/profile">roblox</a> , <a href="https://chaotico.carrd.co/">carrd</a> , <a href="https://sparkler.cc/@RIBBIT">retrospring</a> , <a href="https://toyhou.se/melting_ink">toyhouse</a> , <a href="https://pronouns.cc/@INKING_DOWN">pronouns.cc</a> </em> <p>
 
