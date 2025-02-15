@@ -1,6 +1,6 @@
 <p align="center"> <em> '' It had to be me . . . Fucking . . . Shit . '' </em> <p>
 
-<p align="center"> <img src="https://i.postimg.cc/k5nPN3Qf/ihasafacelulz.gif"/> </p>
+<p align="center"> <img src="https://i.ibb.co/MyJqgjSy/ihasafacelulz.gif"/> </p>
 
 <p align="center"> <em> <a href="https://www.roblox.com/users/205802843/profile">roblox</a> , <a href="https://chaotico.carrd.co/">carrd</a> , <a href="https://sparkler.cc/@RIBBIT">neospring</a> , <a href="https://toyhou.se/melting_ink">toyhouse</a> , <a href="https://pronouns.cc/@INKING_DOWN">pronouns.cc</a> </em> <p>
 
