@@ -1,4 +1,4 @@
-<p align="center"> <em> '' ARE YOU THE BEST BLUDDA THERE IS ?'' </em> <p>
+<p align="center"> <em> '' ARE YOU THE BEST BLUDDA THERE IS ? '' </em> <p>
 
 <p align="center"> <img src="https://file.garden/ZSHrFmTvf253N3H3/whyishedoingthat.gif"/> </p>
 
