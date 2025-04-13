@@ -1,6 +1,6 @@
 <p align="center"> <em> '' ARE YOU THE BEST BLUDDA THERE IS ?'' </em> <p>
 
-<p align="center"> <img src="https://file.garden/ZSHrFmTvf253N3H3/therizzlerrrrrr.gif"/> </p>
+<p align="center"> <img src="https://file.garden/ZSHrFmTvf253N3H3/whyishedoingthat.gif"/> </p>
 
 <p align="center"> <em> <a href="https://www.roblox.com/users/205802843/profile">roblox</a> , <a href="https://chaotico.carrd.co/">carrd</a> , <a href="https://sparkler.cc/@RIBBIT">neospring</a> , <a href="https://toyhou.se/melting_ink">toyhouse</a> , <a href="https://pronouns.cc/@INKING_DOWN">pronouns.cc</a> </em> <p>
 
