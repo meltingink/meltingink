@@ -12,6 +12,6 @@
 
 <p align="center"> if you dont like me mentioning a fandom around you (pony cosplay, general talking, etc) or anything else please tell me! i wont know otherwise <p>
 
-<p align="center"> current fandoms/[fixations]/*special interest*: *RIBBIT (deltarune mod)* and [RecallAHollowHeart (roblox horror ARG)] (this list is incredibly short because im not active in many fandoms, these are only the ones im active in as of now) . a lot of my interests are casual (i dont invest in it often), so dont take it to heart! <p>
+<p align="center"> current fandoms/[fixations]/*special interest*: *RIBBIT (deltarune mod)*, collinlock16 and [RecallAHollowHeart (roblox horror ARG)] (this list is incredibly short because im not active in many fandoms, these are only the ones im active in as of now) . a lot of my interests are casual (i dont invest in it often), so dont take it to heart! <p>
 
 <p align="center"> <img src="https://file.garden/ZSHrFmTvf253N3H3/evilredintimidatinghorse.gif" /> <p>
